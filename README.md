@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ikefrank
-- 👀 I’m interested in graphic design, java script and CSS
+- 👀 I’m interested in graphic design, product design and web dev.
 - 🌱 I’m currently learning all above metioned 
 - 💞️ I’m looking to collaborate on graphic design
 - 📫 How to reach me ikefrank...
